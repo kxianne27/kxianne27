@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kxianne27
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning Cybersecurity, Data Science
 
 
 <!---
