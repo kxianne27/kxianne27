@@ -49,4 +49,4 @@ LinkedIn:
 https://linkedin.com/in/knpaler
 
 Email:
-kxzaishteru@hotmail.com
+ayamenakayama27@gmail.com
